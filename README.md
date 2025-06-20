@@ -1,16 +1,36 @@
-## Hi there 👋
+minisky继续浏览 98是填空题95是口述题,92是 baoyutv最新地域网名查询 男女之间什么叫填空题 2025千百日语培训最新网站
 
-<!--
-**nqtzhd/nqtzhd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+近侍不明所以，犹豫着点头。
+他最熟悉的那些刑罚，在他爬到这个位置之前，不知道亲身体验过多少次了。
+
+锦晏：“给他们一点惩罚，但别弄死了，水坝才开始修，很多民生设施还在规划，各种工坊的筹建还没开始，我还有好多想做的事情没有做，缺的是人手，他们要是死了，谁给我免费干活？”
+
+想到什么，锦晏又道：“死了也没关系，我之前得了一本古方医术，上面详细记载了换心换肺换胃换血等治疗手段的操作过程，但剖开后的人体是什么样，我还没见过呢，他们若是受不住刑罚死了，正好可以供我解剖用，也算废物利用。”
+
+天子近侍：“……”
+
+几位县令：“……”
+
+宋淮和扶摇听到这都愣了一下，而后无奈摇头。
+
+这是锦晏能做出来的事。
+
+几个县令快吓尿了。
+
+近侍脑子却转得很快，“殿下交代的，奴才都记住了，奴才有个提议，若殿下手下缺干活的人手，何不向陛下上奏，将大牢里罪大恶极的死囚押来这里呢？”
+
+锦晏看了近侍一眼，“不错，脑子很灵活啊，你叫什么？”
+
+近侍：“回殿下，奴才王福。”
+
+锦晏：“你说的想法很不错，这样，就由你替我写一封奏折，让人快马加鞭送去京城。”
+
+王福：“是，奴才遵命。”
+
+锦晏：“起来吧，真是可惜了，听说梅家全族有一千人呢，都死了，真是可惜了。”
+
+不远处锦瑟气得眼睛都在冒火。
